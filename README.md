@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @IYA-INC
+- 
 Welcome to IYA, where we believe in the power of inspiration, the art of instilling greatness, the energy of invigoration, and the transformative nature of education!
 
 At IYA, we see greatness in you, and we're here to nurture it every step of the way. Whether you're embarking on a new business journey or seeking to elevate your existing ventures, we're honored to be part of your path to success.
